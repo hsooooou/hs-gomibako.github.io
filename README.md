@@ -1,0 +1,1 @@
+# hs-gominbako.github.io
