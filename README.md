@@ -1,1 +1,1 @@
-# hs-gominbako.github.io
+# hs-gomibako.github.io
